@@ -1,0 +1,1 @@
+# Filtr-decymacyjny-typu-CIC-
